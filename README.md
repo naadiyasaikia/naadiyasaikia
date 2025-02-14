@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on various interesting projects
 - 📫 How to reach me - instagram @wakeupnaadz / linkedin - Naadiya Saikia
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: im not very fun!
+- ⚡ Fun fact: i'm not very fun!
 
 <!---
 naadiyasaikia/naadiyasaikia is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
