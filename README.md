@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @naadiyasaikia
 - 👀 I’m interested in coding and art
-- 🌱 I’m currently learning Ren'Py and Python
+- 🌱 I’m currently learning Ren'Py, Python and Java
 - 💞️ I’m looking to collaborate on various interesting projects
 - 📫 How to reach me - instagram @wakeupnaadz / linkedin - Naadiya Saikia
 - 😄 Pronouns: she/her
