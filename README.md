@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding and art
 - 🌱 I’m currently learning Ren'Py, Python and Java
 - 💞️ I’m looking to collaborate on various interesting projects
-- 📫 How to reach me - instagram @wakeupnaadz / linkedin - Naadiya Saikia
+- 📫 How to reach me - instagram @naadiyasaikia / linkedin - Naadiya Saikia
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: i'm not very fun!
 
